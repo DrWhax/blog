@@ -10,3 +10,4 @@ I used to like Twitter and some discussions that we're had on this platform. How
 I'd like to start reviewing some books i'm reading, publishing of research and some good 'ol banter.
 
 2019 will be interesting.
+
